@@ -23,5 +23,5 @@ I'm a **data scientist, AI developer, and tech enthusiast** with a passion for b
 
 ## 📫 Let's Connect!  
 💼 LinkedIn: www.linkedin.com/in/kalebpaulsen**
-📬 **Email:** kalebpaulsen22@gmail.com
+📬 Email:** kalebpaulsen22@gmail.com
 
