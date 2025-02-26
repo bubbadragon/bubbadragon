@@ -22,6 +22,8 @@ I'm a **data scientist, AI developer, and tech enthusiast** with a passion for b
 ✔ Helping businesses leverage AI for **decision-making & automation**  
 
 ## 📫 Let's Connect!  
-💼 LinkedIn: www.linkedin.com/in/kalebpaulsen**
+💼 LinkedIn: www.linkedin.com/in/kalebpaulsen
+
 📬 Email: kalebpaulsen22@gmail.com
+
 
